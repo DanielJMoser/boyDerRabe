@@ -3,7 +3,7 @@ Am 17.04.2025 begann die Verfuehrung des Boys.
 
 
 # Aussehen
-Aeusserlich unterscheidet sich Der Boy kaum von einer alltaeglichen Rabenkraehe (von Kennern [[Corvus corone]] genannt) -> schwarz mit grau-weissen Akzenten. 
+Aeusserlich unterscheidet sich Der Boy kaum von einer alltaeglichen Rabenkraehe (von Kennern [[Corvus Corone]] genannt) -> schwarz mit grau-weissen Akzenten. 
 ## Gallerie
 
 Ein praeferierter Platz des Boys scheint der Durchgang zwischen Landestheater und MCI 2 zu sein. Da beim Radelstaender daneben.
