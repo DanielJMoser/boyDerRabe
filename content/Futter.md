@@ -1,0 +1,4 @@
+| Datum    | Bild              | Beschreibung                                                                                                                                                                      |
+| -------- | ----------------- | --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| 22.04.25 | ![[22.04.25.jpg]] | Der am Freitag angerichtete Festschmaus wurde offenbar uebers lange Wochenende verzehrt. Bereit liegen heute zwei Trauben (gestueckelt) und eine Apfelschnitte (ditto). Mahlzeit! |
+|          |                   |                                                                                                                                                                                   |
